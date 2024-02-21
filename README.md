@@ -1,0 +1,1 @@
+# Tuplelarni-qo-shish
